@@ -1,0 +1,1 @@
+# Mod_Capital-Akademy.kg
